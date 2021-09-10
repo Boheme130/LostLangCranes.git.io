@@ -25,7 +25,10 @@
 
 <br>
 <br>
+<br>
 
+
+![avatar](https://cdn.shopify.com/s/files/1/0257/3165/products/9896353_788x.jpg?v=1510089525)
 
 ## 子线：
 Philip对于朋友和同事都公开自己的性取向，但却对父母保守了这个秘密，他和母亲Rose有非常亲密的关系，每周都一起吃饭聊天，但和父亲比较疏远。Philip新交了一个男友Eliot, 他非常爱Eliot, 一刻都不想分离，在交往中，Philip的往事通过回忆或对话的形式一点点展现出来，他身份认同比较晚，感情经验只有仓促的一段，他在Eliot身上才第一次体验到了爱的感觉。然而Eliot私下对他的室友Jerene承认他没有爱上Philip. Philip提出想对父母出柜，希望Eliot能陪着他一起去。Philip请求Eliot带他去见Eliot的领养父亲夫夫，在晚餐后，Philip更是提议带着所有人去Gay Bar, 酒吧外，Eliot坦诚了自己对Philip的感觉，两人回到家里享受着最后亲密的一夜，几天后Eliot离开去了欧洲。
