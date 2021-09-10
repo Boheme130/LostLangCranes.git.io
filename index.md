@@ -38,6 +38,8 @@ Philip对于朋友和同事都公开自己的性取向，但却对父母保守�
 <br>
 <br>
 
+![avatar](https://lh3.googleusercontent.com/proxy/jyVLCmKvG7dpRV6jErdqcF-CgcXXEUGOMMQfvxxwJvBeG8EauTReXFhh69xolR-hTdMnVXx7ErP_CooHtdJIumWbz5btJeAtXFtYG8xMoclUuMjl-M3obzxzTSENC8D1hpiCUQ2GBaD3JZjR-g)
+
 ## 母线：
 Rose是一个循规蹈矩、无法接受事物变化的女人，她最恐惧的便是自己的生活发生改变。她努力维持家庭平静，更多是为了自己而不是家人。同时她自称不是一个有母性的人。她随同丈夫Owen去欧洲出差时，她出轨了另一个有妇之夫，当对方的妻子跑来暴打5岁的Philip时，她为了不暴露自己的外遇没有做声，反而推开了哭着求助的Philip。之后Philip哭着睡着了，Rose内心十分不安，她摇醒孩子要求孩子接受她的道歉。在多年的婚姻中，她还有其他的外遇，但她都尽量不让这些外遇干预她的家庭生活。
 
@@ -46,6 +48,7 @@ Rose是一个循规蹈矩、无法接受事物变化的女人，她最恐惧的�
 <br>
 <br>
 
+![avatar](https://4.bp.blogspot.com/-STHcFKdN83o/VGM5c4YZK2I/AAAAAAAAdC8/PSsiLfcXTKY/s1600/cranes%2B2.jpg)
 
 ## 父线：
 Owen的人生是失败的，他拿着文学Phd在学术界做教授不顺，最后当了个顶尖私立高中招生官和老师。同时，他一直压抑自己的内心，保持着对妻子的行为忠诚。在结婚的27年里，他唯一的同性行为，就是每周日下午躲着妻子偷偷看gay porn。妻子根本不关心他出不出轨，只关心他能扮演好一个丈夫的角色。52岁的Owen还没有和同性发生过任何情感或行为。
